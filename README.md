@@ -2,17 +2,16 @@
 
 Welcome to my GitHub profile!
 
-## 📷 Image Example
+---
 
-![Profile Banner](https://user-images.githubusercontent.com/12345678/your-image.png)
+## 🌟 Robinn
 
-## 🎬 GIF Example
-
-![Coding GIF](https://media.giphy.com/media/3o7aD2saalBwwftBIY/giphy.gif)
+![Robinn GIF](https://www.google.com/url?sa=i&url=https%3A%2F%2Fsteamcommunity.com%2Fsharedfiles%2Ffiledetails%2F%3Fl%3Dvietnamese%26id%3D3241857956&psig=AOvVaw0H4fTncyJJtJ-Tq1MpdIg-&ust=1748056667783000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCIDJo5vWuI0DFQAAAAAdAAAAABAE)
 
 ---
 
-Feel free to explore my repositories and connect!
+*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚  
+⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆  ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
 <!--
 To use your own images or GIFs:
