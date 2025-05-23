@@ -18,4 +18,4 @@ To use your own images or GIFs:
 - Upload them to your repo (e.g., images/banner.png) and use a relative path:
   ![Banner](images/banner.png)
 - Or use a direct URL if hosted elsewhere.
--->
+->
