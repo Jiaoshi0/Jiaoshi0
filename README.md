@@ -4,9 +4,9 @@ Welcome to my GitHub profile!
 
 ---
 
-## 🌟 Robinn
+## 🌟 Robin from Honkai: Star Rail
 
-![Robinn GIF](https://www.google.com/url?sa=i&url=https%3A%2F%2Fsteamcommunity.com%2Fsharedfiles%2Ffiledetails%2F%3Fl%3Dvietnamese%26id%3D3241857956&psig=AOvVaw0H4fTncyJJtJ-Tq1MpdIg-&ust=1748056667783000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCIDJo5vWuI0DFQAAAAAdAAAAABAE)
+![Robin HSR GIF](https://media.tenor.com/5R5p0uvvZkYAAAAC/robin-honkai-star-rail.gif)
 
 ---
 
