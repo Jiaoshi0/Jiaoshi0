@@ -10,6 +10,16 @@
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/64ffef040051891996fbb1fb20fc14cf46501800/tumblr_ad19be8f9b35bc8d8d4ebd460bdc3e7f_42b1a207_1280.png)
 
 
-──────────♡─────────
+──
                       *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
+            
+            
             ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆  ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
+MY OTPPPPP
+
+
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/7385325d87cc9f74b2a5bc466935b0b49f1e13bd/ca784c1a54c49f130210bd47c7a41b53.jpg)
+
+
+
+──────────♡─────────
