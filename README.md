@@ -2,7 +2,7 @@ ________________________________
 
 --------------------------------
 
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/326d497c6ddef2586ee91894aee7ebc66df3b1c8/a%20nhon.jpg)
+![image alt]([https://github.com/Jiaoshi0/Jiaoshi0/blob/326d497c6ddef2586ee91894aee7ebc66df3b1c8/a%20nhon.jpg](https://github.com/Jiaoshi0/Jiaoshi0/blob/26aa14d714bb3e89b2ba8fa3cc30987b78fb04e2/Untitled1.png))
               ──────────୨ৎ─────────
 
 ` I often OFFTAB so please take the initiative to whisper to me
