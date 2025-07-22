@@ -12,5 +12,4 @@ ________________________________
 ` I am friendly and easy-going, so feel free to come close, hug and chat with me
 
 __________________________________
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/8c1162794cf491c5aa7bfaa458f2a493c26e0ee2/Untitled5_20250722141033.png) [Strawpage](https://jiaoshi.straw.page/) <p align="left">[Atabook](https://jiaoshi.atabook.org/) <p align="center">
-
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/8c1162794cf491c5aa7bfaa458f2a493c26e0ee2/Untitled5_20250722141033.png) 
