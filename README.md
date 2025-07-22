@@ -2,7 +2,7 @@ ________________________________
 
 --------------------------------
 
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/26aa14d714bb3e89b2ba8fa3cc30987b78fb04e2/Untitled1.png)
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/3a98faf2f5f34dabd333a4f17ca6607178e4739d/Untitled4_20250722135526.png)
               ──────────୨ৎ─────────
 
 ` I often OFFTAB so please take the initiative to whisper to me
@@ -16,4 +16,4 @@ __________________________________
 
 
 
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/f1a3785566e922c60d541473d279879f0c482491/Untitled3_20250722105550.png)
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/2c86862948ba82e7491379018e891304fb662f5f/57bbf730aac44b5511bfbd64c3d8c0de.jpg)
