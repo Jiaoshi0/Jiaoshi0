@@ -16,4 +16,4 @@ __________________________________
 
 
 
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/aef78af307afed66aff7fecb5ea5813271c427f9/chibichibi.jpg)
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/f1a3785566e922c60d541473d279879f0c482491/Untitled3_20250722105550.png)
