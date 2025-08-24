@@ -14,21 +14,10 @@ ________________________________
 * I'm omnivorous so any ships (except ZhongXiao...I just consider them father and son)
 
 
-' Dni
-* Racism
-* sabotaging other ships
-* incest-related ships
-* LaitoYui (hateship)
-
-
-  
-' int 
-* I like the Diabolik Lovers fandom, so if you’re in the same fandom as me, feel free to come because I really like people who know about Diabolik Lovers
-* Sometimes I read manhwa or manga—I don’t read that many, only the ones that really impress me
-* Sleepyhead heh… that’s why I’m always OFFTAB, just because of my sleepiness….
 __________________________________
 
 
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/8c1162794cf491c5aa7bfaa458f2a493c26e0ee2/Untitled5_20250722141033.png) 
+
 
 
