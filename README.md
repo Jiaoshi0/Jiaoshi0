@@ -2,7 +2,7 @@ ________________________________
 
 --------------------------------
 
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/3a98faf2f5f34dabd333a4f17ca6607178e4739d/Untitled4_20250722135526.png)
+![image alt](NAGIII.png)
               ──────────୨ৎ─────────
 
 ' Byi
@@ -18,6 +18,7 @@ __________________________________
 
 
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/8c1162794cf491c5aa7bfaa458f2a493c26e0ee2/Untitled5_20250722141033.png) 
+
 
 
 
