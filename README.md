@@ -2,7 +2,7 @@ ________________________________
 
 --------------------------------
 
-![image alt]((https://github.com/Jiaoshi0/Jiaoshi0/blob/4f47d0538fb4490e89d5e2f47d39e2f68100e5df/kinich.png))
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/4f47d0538fb4490e89d5e2f47d39e2f68100e5df/kinich.png)
               ──────────୨ৎ─────────
 
 ' Byi
@@ -18,6 +18,7 @@ __________________________________
 
 
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/599927ffeb39deaec868ee4d677c7cfc45185797/Untitled7_20250901210356.png) 
+
 
 
 
