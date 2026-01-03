@@ -1,4 +1,7 @@
 I'M DYINGGGG @avenoirX
+
+
+
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/08e1141b899a4a39fc5cc3e978369d4a8ba6134a/33689df1-3e08-43d3-8640-6eb9a70a708a.jpeg) 
 ______________________________
 
@@ -17,6 +20,7 @@ ______________________________
 
 
 __________________________________
+
 
 
 
