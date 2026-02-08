@@ -5,6 +5,8 @@ me and @avenoirX >_<
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/4662eabb8ecf9b1525c1d5aa1265e54c113818b2/Illustration66.png) 
 ______________________________
 
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/4c16131ce3e3a02f54f5ea2d719f93a538264d13/Screenshot%202026-02-08%20231609.png)
+
 --------------------------------
 
 ![image alt](a0d84d196138f53833051b8d0f13dca9.jpg)
@@ -20,6 +22,7 @@ ______________________________
 
 
 __________________________________
+
 
 
 
