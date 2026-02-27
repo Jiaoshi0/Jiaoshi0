@@ -19,9 +19,12 @@ ______________________________
 * Sometimes I fall asleep a lot when OFFTAB (often) so I'll disappear for a while but will come back... staying up late studying makes me always in that state, please understand when you don't see me, I won't leave you<3
 * c+h always, int pls I'm very comfortable
 * I'm omnivorous so any ships (except ZhongXiao...I just consider them father and son)
+* I have quite a few different skin tones... so if my ponies have a style similar to yours, please whisp and I'll rmk it^o^
 
+_________________________________ 
 
 __________________________________
+
 
 
 
