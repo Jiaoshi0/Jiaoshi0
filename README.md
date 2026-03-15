@@ -16,7 +16,8 @@
 <div align="center">
 𓈒⊹ ---------------- 𓈒⊹
   <div align="center">
-![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2381c3547fbe9bc60f0798e2762d90fb439a396/jiaoharu.png) 
+
+  ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2381c3547fbe9bc60f0798e2762d90fb439a396/jiaoharu.png) 
 
 
 
