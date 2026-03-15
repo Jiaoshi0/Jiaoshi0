@@ -14,7 +14,8 @@
 <img src="https://github.com/Jiaoshi0/Jiaoshi0/blob/ca26157f51951f9920f45513f4145ad7cfd11e84/jhjh.png" width="500" height="500">
 
 <div align="center">
-
+𓈒⊹ ---------------- 𓈒⊹
+  <div align="center">
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2381c3547fbe9bc60f0798e2762d90fb439a396/jiaoharu.png) 
 
 
