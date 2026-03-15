@@ -11,7 +11,7 @@
 <div align="center">
 
 
-<img src="https://github.com/Jiaoshi0/Jiaoshi0/blob/ca26157f51951f9920f45513f4145ad7cfd11e84/jhjh.png" width="400" height="400">
+<img src="https://github.com/Jiaoshi0/Jiaoshi0/blob/ca26157f51951f9920f45513f4145ad7cfd11e84/jhjh.png" width="500" height="500">
 
 <div align="center">
 
