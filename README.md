@@ -10,16 +10,14 @@ ______________________________
 
 --------------------------------
 
-![image alt](a0d84d196138f53833051b8d0f13dca9.jpg)
+![image alt](hikayoshi.png)
+
+<div align="center">
+
+  [Atabook]([https://jiaoshi.atabook.org/) . [Spotify](https://open.spotify.com/user/31f3di6ufi3yvnbkstnaemaf7p6m?si=ipxV9yZZR_GV9XED9N5XtA&nd=1&dlsi=30583674c105439e) . [Gun . lol](https://guns.lol/jiaoshi1)
               ──────────୨ৎ─────────
 
-' Byi
-* 17+
-* I'm quite shy when getting to know others at first, but trust me if you know me long enough I talk a lot and have a lot of energy
-* Sometimes I fall asleep a lot when OFFTAB (often) so I'll disappear for a while but will come back... staying up late studying makes me always in that state, please understand when you don't see me, I won't leave you<3
-* c+h always, int pls I'm very comfortable
-* I'm omnivorous so any ships (except ZhongXiao...I just consider them father and son)
-* I have quite a few different skin tones... so if my ponies have a style similar to yours, please whisp and I'll rmk it^o^
+
 
 _________________________________ 
 
