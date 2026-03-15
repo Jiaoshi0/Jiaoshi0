@@ -2,7 +2,7 @@
 
 ______________________________
 
-[![spotify-github-profile]([https://spotify-github-profile.kittinanx.com/api/view?uid=31xrpdqa5dmfevxsbtkn4lnjyeye&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=87c3d4&bar_color_cover=false](https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7?si=44962ff75fc94fd8))](https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7?si=44962ff75fc94fd8)
+[![spotify-github-profile](https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7?si=44962ff75fc94fd8)](https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7?si=44962ff75fc94fd8)
 
 --------------------------------
 
