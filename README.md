@@ -14,7 +14,7 @@ ______________________________
 
 <div align="center">
 
-  [Atabook]([https://jiaoshi.atabook.org/) . [Spotify](https://open.spotify.com/user/31f3di6ufi3yvnbkstnaemaf7p6m?si=ipxV9yZZR_GV9XED9N5XtA&nd=1&dlsi=30583674c105439e) . [Gun . lol](https://guns.lol/jiaoshi1)
+  [Atabook](https://atabook.org/control/sitelayout) . [Spotify](https://open.spotify.com/user/31f3di6ufi3yvnbkstnaemaf7p6m?si=ipxV9yZZR_GV9XED9N5XtA&nd=1&dlsi=30583674c105439e) . [Gun . lol](https://guns.lol/jiaoshi1)
               ──────────୨ৎ─────────
 
 
