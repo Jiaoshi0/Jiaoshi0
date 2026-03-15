@@ -12,7 +12,7 @@
 
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2381c3547fbe9bc60f0798e2762d90fb439a396/jiaoharu.png) 
 
-<img src="https://github.com/Jiaoshi0/Jiaoshi0/blob/ca26157f51951f9920f45513f4145ad7cfd11e84/jhjh.png" width="220" height="220">
+<img src="https://github.com/Jiaoshi0/Jiaoshi0/blob/ca26157f51951f9920f45513f4145ad7cfd11e84/jhjh.png" width="400" height="400">
 
 
 
