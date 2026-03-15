@@ -1,11 +1,4 @@
 
-
-______________________________
-
-[![spotify-github-profile](https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7?si=44962ff75fc94fd8)](https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7?si=44962ff75fc94fd8)
-
---------------------------------
-
 ![image alt](hikayoshi.png)
 
 <div align="center">
