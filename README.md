@@ -1,16 +1,18 @@
 
-![image alt](hikayoshi.png)
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b1e4214f192675e6118ceff7df71fa17d63407b3/hikayoshiii.png)
 
 <div align="center">
 
   [Atabook](https://jiaoshi.atabook.org/) . [Spotify](https://open.spotify.com/user/31f3di6ufi3yvnbkstnaemaf7p6m?si=ipxV9yZZR_GV9XED9N5XtA&nd=1&dlsi=30583674c105439e) . [Gun . lol](https://guns.lol/jiaoshi1)
 
 
-me and @avenoirX >_<
+[POOKIE](https://github.com/avenoirX)
 
 <div align="center">
 
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2381c3547fbe9bc60f0798e2762d90fb439a396/jiaoharu.png) 
+
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/ff7f685983890a0c1927093d59be917b3b1aa493/jh.png)
 
 
         
