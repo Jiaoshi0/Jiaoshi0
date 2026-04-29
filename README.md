@@ -1,4 +1,6 @@
 ✧ . ' ·
+
+![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2b41f36246544890709d78fda2f457ccd9fdfe1/z7776538098314_b52ce9057c3ce6ef5b07ae17c44b2a31.jpg)
 ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/bd870320cd7e4450e06f238c9114881b3c322246/hyy.png)  𓈒⊹
 
 <div align="center">
