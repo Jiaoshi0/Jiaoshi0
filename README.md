@@ -20,9 +20,12 @@
   ![image alt](https://github.com/Jiaoshi0/Jiaoshi0/blob/b2381c3547fbe9bc60f0798e2762d90fb439a396/jiaoharu.png)  𓈒⊹--
 
   Greeting >_- 
-  HII, I’m Jiao/Kyle,u can call me by either name 
-  Sometimes I OFFTAB because Im busy, in class, or dozing off..I have some health issues that cause me to fall asleep occasionally, which is why I don’t say much..srry 
-  Anyway, if you’d like to be friend w me, please feel free,don’t be shy
+
+ HII, I’m Jiao/Kyle,u can call me by either name 
+
+Sometimes I OFFTAB because Im busy, in class, or dozing off..I have some health issues that cause me to fall asleep occasionally, which is why I don’t say much..srry 
+
+ Anyway, if you’d like to be friend w me, please feel free,don’t be shy
 
 
 
